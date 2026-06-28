@@ -1,4 +1,4 @@
-# 
+# Gratuit degen coin sniper bot extensions pour Mac OS | Élite degen coin sniper bot extensions pour PC Windows. Avec vérification du contrat et support multi-chaînes — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
